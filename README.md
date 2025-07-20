@@ -1,5 +1,4 @@
-## 👩‍💻 About Me
-### Twilight | she/her/it | Full Stack Dev | Audio Dev | Boston
+## 👩‍💻 Twilight | she/her/it | Full Stack Dev | Audio Dev | Boston
 - May possibly be more caffeine than human at this point.
 - Has way too many cats for her own good.
 - Makes electronic music when the writer's block subsides.
